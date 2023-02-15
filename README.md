@@ -39,7 +39,7 @@ No wander why he is **SINGLE**
 
 ### Personal Thought :
 
-It was not that difficult task I wander why no one asked or even tried to solve it :disappointed:
+It was not that difficult task I wonder why no one asked or even tried to solve it :disappointed:
 
 It ended with **0 solves**
 
