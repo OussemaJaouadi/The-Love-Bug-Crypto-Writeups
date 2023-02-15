@@ -1,4 +1,4 @@
-# The Love Bug Crypto CTF :
+# The Love Bug Crypto Writeup :
 > **@Ou_sama**
 <hr>
 
